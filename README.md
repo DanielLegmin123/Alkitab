@@ -1,1 +1,1 @@
-# Alkitab
+"Kasihilah Tuhan, Allahmu, dengan segenap hatimu dan dengan segenap jiwamu dan dengan segenap akal budimu dan kasihilah sesamamu manusia seperti dirimu sendiri”, sebagai hukum utama dan pertama.# Alkitab
