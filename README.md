@@ -1,1 +1,1 @@
-"Kasihilah Tuhan, Allahmu, dengan segenap hatimu dan dengan segenap jiwamu dan dengan segenap akal budimu dan kasihilah sesamamu manusia seperti dirimu sendiri”, sebagai hukum utama dan pertama.# Alkitab
+Matius 22 : 37-40 "Kasihilah Tuhan, Allahmu, dengan segenap hatimu dan dengan segenap jiwamu dan dengan segenap akal budimu dan kasihilah sesamamu manusia seperti dirimu sendiri”, sebagai hukum utama dan pertama.# Alkitab
